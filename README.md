@@ -1,1 +1,1 @@
-📫 Reach me on Discord: M1nordragon#0417
+📫 Reach me on Email: liam.marcovitz@gmail.com
