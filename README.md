@@ -1,1 +1,2 @@
-📫 Reach me on Email: liam.marcovitz@gmail.com
+📫 Email for inquiries: liam.marcovitz@gmail.com
+🧑‍🤝‍🧑 Looking to collab on various projects.
